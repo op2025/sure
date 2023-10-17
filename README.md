@@ -1,2 +1,2 @@
 # surecall
-guiding site(trading and planning)
+Nurturing Tomorrow's Leaders Today.
